@@ -16,3 +16,5 @@ AD is both connectivity and amyloid-driven, with potential implications for pers
 
 
 <img width="945" height="770" alt="Screenshot 2026-02-06 at 11 11 16" src="https://github.com/user-attachments/assets/d58b8f43-d2cc-4303-8852-6dd72a92b777" />
+<img width="669" height="683" alt="Screenshot 2026-02-06 at 15 31 08" src="https://github.com/user-attachments/assets/c7949b04-1100-4ad7-af72-3f75ca8cb5a5" />
+<img width="669" height="683" alt="Screenshot 2026-02-06 at 15 31 08" src="https://github.com/user-attachments/assets/c7949b04-1100-4ad7-af72-3f75ca8cb5a5" />
